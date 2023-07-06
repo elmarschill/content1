@@ -2,6 +2,8 @@ ddddddd
 
 MIT License
 
-Copyright (c) 2023 elmarschill
+Copyright (c) 
 
 Permission is hereby granted, free of charge, to any person obtaining a copy
+
+ölkpihljklj
