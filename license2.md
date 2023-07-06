@@ -4,6 +4,4 @@ MIT License
 
 Copyright (c) 
 
-Permission is hereby granted, free of charge, to any person obtaining a copy
-
-ölkpihljklj
+Permission is hereby grantssssssssssssssssssssssssssssss
